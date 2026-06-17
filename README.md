@@ -1,7 +1,7 @@
 # TRACK DECISION MEMO – Day 15
 
 **Họ tên:** Phạm Mạnh Thắng   
-**Pathway:** A *(Tìm / chuyển việc - Phù hợp vì bạn là sinh viên năm cuối đang muốn vào một role AI cụ thể trong thời gian tới).*
+**Pathway:** A
 
 ---
 
